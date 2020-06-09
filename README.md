@@ -1,5 +1,5 @@
 # bartek15912
-**Nazywam się Bartłoemiej Smoliński**
+**Nazywam się Bartłomiej Smoliński
 <br>_Mam 21_lat</br>
 <br>~~qwerty </br>
 
